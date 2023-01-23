@@ -9,4 +9,4 @@ NOTE: This is for education purposes only! This is specifically meant for those 
 
 If doesn't work anymore, hit me up on Reddit or Twitter so I can update. AND if you have questions, hit me up as well.
 
-REDDIT: https://www.reddit.com/user/Critical_Employee_20 TWITTER:https://twitter.com/EthanCarsten
+REDDIT: https://www.reddit.com/user/Critical_Employee_20 
