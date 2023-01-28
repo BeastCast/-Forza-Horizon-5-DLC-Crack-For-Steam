@@ -1,5 +1,7 @@
 # -Forza-Horizon-5-DLC-Crack-For-Steam
-2.0 Release will be up soon, I'm trying to troublshoot some errors real quick....
+**This requires you to download pre-installed Forza Horizon 5 dlc.**
+**Download here or go download the file from releases and view the requirments.txt file for more information.**
+https://mega.nz/folder/zYdgkTaS#wtZP5x7ue51Fn7zWH0kHaQ
 
 This is specifically meant for the Steam version of Forza Horizon 5, or a cracked Steam version of Forza Horizon 5. 
 
