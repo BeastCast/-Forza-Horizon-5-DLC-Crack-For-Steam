@@ -1,5 +1,5 @@
 # -Forza-Horizon-5-DLC-Crack-For-Steam
-2.0 Release will be up soom, I'm trying to troublshoot some errors really quick....
+2.0 Release will be up soon, I'm trying to troublshoot some errors real quick....
 
 This is specifically meant for the Steam version of Forza Horizon 5, or a cracked Steam version of Forza Horizon 5. 
 
